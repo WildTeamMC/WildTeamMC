@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @WildTeamMC
+- 👀 I’m interested in Minecraft Server
+- 💞️ I’m looking to collaborate on
+- 📫 How to reach me
+- - Email:
+- - - 1871735932@qq.com
